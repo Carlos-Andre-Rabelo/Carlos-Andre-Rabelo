@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Carlos-Andre-Rabelo
+- 👀 I’m interested in 3D modeling
+- 🌱 I’m currently learning threes structures
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: carlosandrebr.6@gmail.com
+- 😄 Pronouns: He/His
